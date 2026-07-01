@@ -1,1 +1,1 @@
-# Trophies!!!
+# Trophies
